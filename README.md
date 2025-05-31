@@ -33,4 +33,10 @@ A traditional coolant known for its detoxifying and skin-enhancing properties. N
 
 Nektaar isn't just a juice—it's an experience. Whether you're seeking a health boost, a taste of tradition, or a refreshing break from the ordinary, our juices are crafted to delight and nourish. Join us in celebrating the essence of pure, unfiltered refreshment.
  
-OUTPUT :
+OUTPUT :![Image](https://github.com/user-attachments/assets/8adff6b0-e5ec-47db-b0d0-ecf148ffcc75)
+
+![Image](https://github.com/user-attachments/assets/d45b6ab5-d554-4ce6-af07-f2d999dcaf63)
+
+![Image](https://github.com/user-attachments/assets/4ed8d4a5-9acd-4dc1-b953-276969771503)
+
+![Image](https://github.com/user-attachments/assets/2260ead1-4073-48f1-88e1-107b6ff0e9ff)
